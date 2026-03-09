@@ -1,0 +1,3 @@
+I didn't use any characteristics of AI tools to finish these excercises. But I have been using google, coursera and dictionary webs like sohatratu or CambridgeDictionary to find meanings of words I don't know.
+I've brainstormed for quite a long time to do these things.
+
