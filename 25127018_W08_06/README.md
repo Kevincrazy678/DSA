@@ -1,0 +1,1 @@
+I used AI to generate and explain for me about the graph and the implemetation of moving in graph. But I have been using google, coursera and dictionary webs like sohatratu or CambridgeDictionary to find meanings of words I don't know.
